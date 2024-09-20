@@ -76,3 +76,10 @@
 
 
 
+**Frases**
+
+* De onde você é? 
+	* De donde eres?
+	* 
+![[Recording 20240920091234.webm]]
+
